@@ -1,0 +1,2 @@
+# tinnitus
+A tinnitus story.
