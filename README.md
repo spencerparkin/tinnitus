@@ -1,4 +1,4 @@
-# My Experience with Tinnitus
+# My Experience With Tinnitus
 
 By Spencer T. Parkin
 
