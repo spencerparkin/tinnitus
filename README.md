@@ -137,7 +137,7 @@ While talking with my doctor about benzos, I recall him mentioning a theory that
 ## Other Types of Tinnitus Treatment
 
 Of course, through my travels of the internet, alternative treatments of tinnitus could be found; some dubious,
-others seemingly more hopeful; and in my desperate moments, they all took me for a ride for some time or other.  Of the former, neck tapping, suppliments, and wrist-bands come to mind, just to name a few.  In the latter case, I was intrigued by something called the Michigan tinnitus deivce.  There's been a lot of hype around this device, but it's not the first of its kind.  It's based around the idea of something called "bimodal stimulation."  You can read all about it, so I won't try (and fail) to explain it here.
+others seemingly more hopeful; and in my desperate times, they all took me for a ride for some time or other.  Of the former, neck tapping, suppliments, and wrist-bands come to mind, just to name a few.  In the latter case, I was intrigued by something called the Michigan tinnitus deivce.  There's been a lot of hype around this device, but it's not the first of its kind.  It's based around the idea of something called "bimodal stimulation."  You can read all about it, so I won't try (and fail) to explain it here.
 
 The biggest problem with these devices, as I recall, is that they haven't been proven to show a clinicially significant improvement in tinnitus outcomes when compared to the leading conventional treatment which, at the time of this writing, is still tinnitus retraining therapy (TRT.)  It's also hard to design accurate studies with control groups for things like tinnitus.
 
