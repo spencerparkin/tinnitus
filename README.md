@@ -151,7 +151,7 @@ There are basically two schools of thought when it comes to a cure for tinnitus.
 
 Okay, so this is now where I'm going to sound like a commercial for Treble Health.  The other problem I see with bimodal stimulation is that it is very expensive.  In my opinion, if you want to get the biggest bang for your buck, then Treble's TRT program is what I would recommend.  I strongly considered the bimodal stimulation at one point, but it was expensive, and since I didn't do it, I can't really speak to how effective it is.  In any case, it's probably a good idea to try the conventional treatment of the day before moving on to an alternative.
 
-I recall that bimodal stimulation is very helpful for those with a form of tinnitus that falls under the "somatosensory" category.  This means that you can modulate the volume or pitch of your tinnitus be moving your body around or clenching your jaw or something like that.  I find that I can do that with my tinnitus, so I presume to fall under this category.  (Again, it's frustrating, because no doctor can diagnose this; I have to just guess this for myself.)  In any case, you know what?  I just don't clench my jaw anymore.  Problem solved.
+I recall that bimodal stimulation is very helpful for those with a form of tinnitus that falls under the "somatosensory" category.  This means that you can modulate the volume or pitch of your tinnitus by moving your body around or clenching your jaw or something like that.  I find that I can do that with my tinnitus, so I presume to fall under this category.  (Again, it's frustrating, because no doctor can diagnose this; I have to just guess this for myself.)  In any case, you know what?  I just don't clench my jaw anymore.  Problem solved.
 
 ## Where I Am Today
 
