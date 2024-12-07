@@ -141,7 +141,7 @@ others seemingly more hopeful; and in my desperate times, they all took me for a
 
 The biggest problem with these devices, as I recall, is that they haven't been proven to show a clinicially significant improvement in tinnitus outcomes when compared to the leading conventional treatment which, at the time of this writing, is still tinnitus retraining therapy (TRT.)  It's also hard to design accurate studies with control groups for things like tinnitus.
 
-Don't misunderstand me here.  I'm not knocking bimodal stimulation at all.  I want it to succeed.  I hope science finds a break-through in tinnitus research.  At the same time, I won't be devastated if one is not found in my life-time.
+Don't misunderstand me here.  I'm not knocking bimodal stimulation at all.  I want it to succeed.  I hope science finds a break-through in tinnitus research.  At the same time, I won't be devastated if one is not found in my lifetime.
 
 There is a tricky balance going on here.  I don't want to downplay the affliction that tinnitus causes, because I don't want tinnitus research to be given a low-enough priority that no advancements are ever made.  (Like anyone cares what I think, but you get what I mean.)  At the same time, it's important to downplay the affliction of tinnitus (when thinking long term) for those who have it, because it's this kind of mindset that is going to help your brain habituate.  I hope it's clear to the reader by this point that I do _not_ downplay the affliction tinnitus causes in its initial stages.  I was significantly afflicted by it for over a year.  I'm at peace with the fact that it will be with me for the rest of my life.
 
